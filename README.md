@@ -7,12 +7,12 @@ Inside Out 2
 Animation, Comedy, and Adventure
 
 ## Description
-Inside Out 2 is an animated movie about a young girl named Riley. The story shows her emotions as she experiences new challenges while growing up.
+Inside Out 2 is a movie about a young girl named Riley and her emotions as she experiences new challenges while growing up.
 
 ## Why I Like It
-I like this movie because it is entertaining and teaches important lessons about emotions, friendship, and understanding ourselves.
+I like this movie because it is entertaining and teaches lessons about emotions, friendship, and understanding ourselves.
 
-## My Favorite Character
+## Favorite Character
 Joy
 
 ## Conclusion
